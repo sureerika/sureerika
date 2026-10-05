@@ -10,4 +10,9 @@
  abby anderson fictionheart 
 <img src="https://file.garden/Zy7nsVKnFHAuCMhW/pixels/black%20pixel/bl61"/>
   <br><br><br>
-<img src="https://file.garden/Z4-KIXj5okOfzeyR/STASH/Pixels/384.gif"/>
+<img src="https://i.pinimg.com/736x/9c/20/fc/9c20fc95df7a37c929a01e381dc99ddd.jpg" alt="Story pin image"/>
+ <br><br><br>
+ wip .. bare with me 
+ <br><br>
+ ────────────⊹₊˚‧︵‿₊⊱·✶·⊰₊‿︵‧˚₊⊹────────────
+
