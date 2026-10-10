@@ -4,19 +4,19 @@
  𓂃˖˳·˖ ִֶָ ⋆✶⋆ ִֶָ˖·˳˖𓂃 ִֶָ 𓂃˖˳·˖ ִֶָ ⋆✶⋆ ִֶָ˖·˳˖𓂃 ִֶָ 𓂃˖˳·˖ ִֶָ ⋆✶⋆ ִֶָ˖·˳˖𓂃 ִֶָ 𓂃˖˳·˖ ִֶָ ⋆✶⋆ ִֶָ˖·˳˖𓂃 ִֶָ
 <br><br>
 <div align="center">
-<img src="https://i.postimg.cc/T3ysxQtZ/IMG_5661.gif" alt="15"/> " 𝚆𝚎 𝚕𝚎𝚝 𝚢𝚘𝚞 𝚋𝚘𝚝𝚑 𝚕𝚒𝚟𝚎, 𝚊𝚗𝚍 𝚢𝚘𝚞 𝚠𝚊𝚜𝚝𝚎𝚍 𝚒𝚝! " <img src="https://i.postimg.cc/8cKyQrMp/IMG_5660.gif" alt="16"/>
+ " 𝚆𝚎 𝚕𝚎𝚝 𝚢𝚘𝚞 𝚋𝚘𝚝𝚑 𝚕𝚒𝚟𝚎, 𝚊𝚗𝚍 𝚢𝚘𝚞 𝚠𝚊𝚜𝚝𝚎𝚍 𝚒𝚝! " 
 <br><br>
 ────────────⊹₊˚‧︵‿₊⊱·✶·⊰₊‿︵‧˚₊⊹────────────
 <br><br> 
 <div align="center">
  abby anderson fictionheart 
-<img src="https://file.garden/Zy7nsVKnFHAuCMhW/pixels/black%20pixel/bl61"/> 
-  <br><br><br>
-<img src="https://pixelsafari.neocities.org/blinkies/animal/catlove.gif"/> <img src="https://adriansblinkiecollection.neocities.org/c39.gif"/>
- <br>
- <img src="https://adriansblinkiecollection.neocities.org/x34.gif"/> <img src="https://adriansblinkiecollection.neocities.org/q18.gif"/>
+
 <br><br>
+<img src="https://i6.glitter-graphics.org/pub/976/976336iiof8g9a9g.gif"/><img src="https://plasticdino.net/blinkie/blinkie47.gif" alt="blinkie"/>
+<br>
+<img src="https://plasticdino.net/blinkie/0c6f9cba.gif" alt="blinkie"/> <img src="https://adriansblinkiecollection.neocities.org/x55.gif"/>
+
+
   𓂃˖˳·˖ ִֶָ ⋆✶⋆ ִֶָ˖·˳˖𓂃 ִֶָ 𓂃˖˳·˖ ִֶָ ⋆✶⋆ ִֶָ˖·˳˖𓂃 ִֶָ 𓂃˖˳·˖ ִֶָ ⋆✶⋆ ִֶָ˖·˳˖𓂃 ִֶָ 𓂃˖˳·˖ ִֶָ ⋆✶⋆ ִֶָ˖·˳˖𓂃 ִֶָ
  <br><br>
  ────────────⊹₊˚‧︵‿₊⊱·✶·⊰₊‿︵‧˚₊⊹────────────
-
