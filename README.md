@@ -13,7 +13,7 @@
 <br><br>
 ✶⋆.˚travis fictionkin . . 
 <br><br>
-. . read strawpage before following .☘︎ ݁˖
+. . read strawpage before following . ݁˖
 <br><br><br>
 
 
