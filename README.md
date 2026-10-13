@@ -7,12 +7,8 @@
 <br><br> 
 <img width="300" height="276" alt="image" src="https://github.com/user-attachments/assets/c89b5e8c-f0bd-4402-901f-ff4b9634df14" />
 <br><br>
- hi this is a wip 
- <br>
-<img src="https://adriansblinkiecollection.neocities.org/stamps/h13.png"/> <img src="https://adriansblinkiecollection.neocities.org/stamps/b31.jpg"/>
-<br>
-<img src="https://adriansblinkiecollection.neocities.org/stamps/b1.png"/><img src="https://adriansblinkiecollection.neocities.org/stamps/j19.gif"/>
-<br><br><br>
+. ݁₊ ⊹ . please read straw / rentry before following .. ݁₊ ⊹ .
+ <br><br>
 <a href="https://sureerika.atabook.org/">atabook</a>
 <a href="https://sureerika.straw.page/">strawpage</a>
 <a href="https://rentry.co/sureerika">rentry</a>
