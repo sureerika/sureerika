@@ -13,5 +13,8 @@
 <br>
 <img src="https://adriansblinkiecollection.neocities.org/stamps/b1.png"/><img src="https://adriansblinkiecollection.neocities.org/stamps/j19.gif"/>
 <br><br><br>
-
+<a href="https://sureerika.atabook.org/">atabook</a>
+<a href="https://sureerika.straw.page/">strawpage</a>
+<a href="https://rentry.co/sureerika">rentry</a>
+ <br><br>
 <img width="431" height="56" alt="image" src="https://github.com/user-attachments/assets/c95fa943-9924-4ee0-8b42-145fee92c512" />
