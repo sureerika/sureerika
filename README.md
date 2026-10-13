@@ -7,14 +7,11 @@
 <br><br> 
 <img width="300" height="276" alt="image" src="https://github.com/user-attachments/assets/c89b5e8c-f0bd-4402-901f-ff4b9634df14" />
 <br><br>
-₊˚⊹⋆ the name is jinx / jaz , either or !!
-<br><br>
-. . abby anderson fictionheart .⋆♱
-<br><br>
-✶⋆.˚travis fictionkin . . 
-<br><br>
-. . read strawpage before following . ݁˖
+ hi this is a wip 
+ <br>
+<img src="https://adriansblinkiecollection.neocities.org/stamps/h13.png"/> <img src="https://adriansblinkiecollection.neocities.org/stamps/b31.jpg"/>
+<br>
+<img src="https://adriansblinkiecollection.neocities.org/stamps/b1.png"/><img src="https://adriansblinkiecollection.neocities.org/stamps/j19.gif"/>
 <br><br><br>
-
 
 <img width="431" height="56" alt="image" src="https://github.com/user-attachments/assets/c95fa943-9924-4ee0-8b42-145fee92c512" />
